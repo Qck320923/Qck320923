@@ -2,4 +2,4 @@
 - 👀 I’m interested in scratch, python, javascript, html, css, c++, java / programming, reading, cycling, skateboarding, playing Minecraft
 - 🌱 I’m currently learning c++
 - 📫 Search for user L.W.Kevin0wvf in Box3 to reach me
-- 💞️ My friend: 54145a
+- 💞️ My friend: 145a
