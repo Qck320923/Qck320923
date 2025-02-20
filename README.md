@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Qck320923(L.W.Kevin0wvf)
-- 👀 I’m interested in scratch, python, javascript, typescript, html, css, c++, java / programming, reading, cycling, skateboarding, playing Minecraft
-- 🌱 I’m currently learning c++, java, typescript, Chinese, Maths, English, Biology, Geography, History, Morality and Rule of Law‌ 
+- 👀 I’m interested in playing Minecraft
+- 🌱 I’m currently learning c++, java, typescript, Math 
 - 📫 Search for user L.W.Kevin0wvf in dao3fun to reach me
-- 💞️ My friend: 145a
+- 💞️ My friends: none
